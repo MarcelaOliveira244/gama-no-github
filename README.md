@@ -1,0 +1,1 @@
+Até o momentos os professores são bem objetivos e possuem uma didatica muito boa. Os conteudos são passados detalhadamente o que facilita muito para todos, e principalmente para os iniciantes. 
